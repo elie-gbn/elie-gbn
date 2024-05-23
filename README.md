@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @elie-gbn
+- 👀 I’m interested in coding, wrestling, and music production
+- 🌱 I’m currently a sophomore in AP comp sci A (94.6%), and Harvard CS50 online (98.3%)
+- 💞️ I’m looking to collaborate on anything becuase experince is the only way to learn
+- 📫 you can reach me at eliegus08@gmail.com or my instagram @elie-g255
