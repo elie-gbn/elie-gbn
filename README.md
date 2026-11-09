@@ -1,5 +1,1 @@
-- 👋 Hi, I’m @elie-gbn
-- 👀 I’m interested in coding, wrestling, and music production
-- 🌱 I’m currently a junior taking Data STructures
-- 💞️ I’m looking to collaborate on anything becuase experince is the only way to learn
-- 📫 you can reach me at eliegus08@gmail.com or my instagram @elie-g255
+- 📫 you can reach me at eliegusin@gmail.com or my instagram @e1ie.wav
