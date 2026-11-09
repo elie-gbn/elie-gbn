@@ -1,1 +1,1 @@
-- 📫 you can reach me at eliegusin@gmail.com or my instagram @e1ie.wav
+- 📫 you can reach me at eliegussin@gmail.com or my instagram @e1ie.wav
